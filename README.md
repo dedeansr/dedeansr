@@ -1,4 +1,4 @@
-# Halo! Aku Dede Anshori, Indonesia Web Developer👋🏻 :
+# Halo! Aku Dede Anshori, Indonesian Web Developer👋🏻 :
 
 🧑🏻‍🎓Saat ini sedang belajar di Universitas Muhammadiyah Kalimantan Timur
 
